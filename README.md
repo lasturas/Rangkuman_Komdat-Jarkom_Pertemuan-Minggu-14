@@ -1,0 +1,1 @@
+# Rangkuman_Komdat-Jarkom_Pertemuan-Minggu-14
